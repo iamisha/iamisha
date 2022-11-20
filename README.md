@@ -5,6 +5,6 @@
 
 Here are some ideas to get you started: -->
 
-- hi i'm @iamisha
+- Hi, i'm @iamisha
 - 📫 reach me: ishabtwl10@gmail.com
 

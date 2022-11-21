@@ -1,5 +1,5 @@
 
-![banner](my_design.png)
+![banner](my_design3.png)
 <!--
 **iamisha/iamisha** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
 

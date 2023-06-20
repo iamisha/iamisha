@@ -4,7 +4,7 @@
 
 - 👨‍💻 All of my projects are available at [https://github.com/iamisha](https://github.com/iamisha)
 
-- 📫 A good partnership starts with good communication:  **ishabtwl10@gmail.com**
+- 📫 A good partnership starts with good communication:  **ishahitang09@gmail.com**
 
 <h3 align="left">Connect with me:</h3>
 <p align="left">
